@@ -6,6 +6,13 @@ CSGOEmpire is one of the most popular platforms for CS2 skin gambling and esport
 *   **gamblecsgo100:** Redeem this code to claim a **free Gift Case**.
 *   **hellagmarketing:** Use this code to unlock a **free Gift Case**.
 
+## CSGOEmpire Promo Codes 2025
+| CSGOEmpire Offer | Promo Code    | Details    |
+| :---:   | :---: | :---: |
+| 🎁 Welcome Bonus | top100list   | Get Free CS2 Cases worth up to $1600  |
+| 💸 Daily Coins Bonus | top100list   | Get rewarded with free coins every day   |
+| 🤑 Free Cases Bonus | top100list   | Get Free Gift Case   |
+
 ![CSGOEmpire_Promo_Codes_2025](https://github.com/user-attachments/assets/77d0403d-3f35-4e27-bd33-584e8f71e1b5)
 
 ## What is the CSGOEmpire Promo Code?
